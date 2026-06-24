@@ -22,5 +22,8 @@ Silakan klik tulisan download di bawah ini :
 [![Blogger Website](https://img.shields.io/badge/Blogger-FF5722?style=for-the-badge&logo=blogger&logoColor=white)](https://kumpulan-tema-hgi.blogspot.com)
 
 ---
-*Catatan: Game ini hanya hiburan semata, jangan menjadikan sebagai tempat matapencaharian, Hati-hati dengan channel Palsu yang mengatasnamakan samudra pro. 
+*Catatan: 
+- Game ini hanya hiburan semata, jangan menjadikan sebagai tempat matapencaharian.
+- Hati-hati dengan channel Palsu yang mengatasnamakan samudra pro.
+- Hapus APK LAMA, lalu install APK yang baru.
 Terima kasih sudah mendukung Samudra Pro!*
