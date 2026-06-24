@@ -1,5 +1,4 @@
-# Tema Original Versi 2.78
-
+# TEMA ORIGINAL VERSI 2.78
 ![Tampilan Tema 2.78](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhejUw6gOvvMJonxu-B2RjYpD5O5EoLqoUjB5nh-rYF7mdIkLflgdgegyh1qdzMeHwkMQgr9PR5LapQXyNq2P33xMaCQbnEXGDZ1G33QC9zPbogcRIDsGY37riE28LezT4Zcoj3Cg9HngHCjpYdhyufxkdZ76yeMtgpuPCh1z38ILx0CtXmmPPC3-XMGtfH/s1280/8077.jpg)
 
 Halo semuanya! Ini adalah halaman resmi untuk mengunduh Tema Original Versi 2.78 dari Samudra Pro.
