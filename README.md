@@ -5,12 +5,13 @@
 Halo semuanya! Ini adalah halaman resmi untuk mengunduh Tema Original Versi 2.78 dari Samudra Pro.
 
 **Pembaruan pada versi ini:**
-* Desain antarmuka yang lebih mulus.
-* Perbaikan bug pada sistem auto-rejoin.
-* Script sudah diperbarui agar lebih stabil.
+* Update terbaru.
+* Perbaikan bug pada sistem.
+* Lebih Ringan dan stabil.
 
 Silakan klik tulisan download di bawah ini :
 ### 📥 [DOWNLOAD TEMA VERSI 2.78](https://kumpulan-tema-hgi.blogspot.com/2026/06/tema-original-278.html?m=1)
 
 ---
-*Catatan: File disimpan di server luar karena ukurannya yang cukup besar. Terima kasih sudah mendukung Samudra Pro!*
+*Catatan: Game ini hanya hiburan semata, jangan menjadikan sebagai tempat matapencaharian, Hati-hati dengan channel Palsu yang mengatasnamakan samudra pro. 
+Terima kasih sudah mendukung Samudra Pro!*
