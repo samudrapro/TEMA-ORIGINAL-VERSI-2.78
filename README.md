@@ -13,5 +13,11 @@ Silakan klik tulisan download di bawah ini :
 ### 📥 [DOWNLOAD TEMA VERSI 2.78](https://kumpulan-tema-hgi.blogspot.com/2026/06/tema-original-278.html?m=1)
 
 ---
+### 🌐 Kunjungi Juga:
+
+[![YouTube Channel](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@SAMUDRAPRO2024)
+[![Blogger Website](https://img.shields.io/badge/Blogger-FF5722?style=for-the-badge&logo=blogger&logoColor=white)](https://kumpulan-tema-hgi.blogspot.com)
+
+---
 *Catatan: Game ini hanya hiburan semata, jangan menjadikan sebagai tempat matapencaharian, Hati-hati dengan channel Palsu yang mengatasnamakan samudra pro. 
 Terima kasih sudah mendukung Samudra Pro!*
