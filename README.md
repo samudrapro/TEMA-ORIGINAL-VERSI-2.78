@@ -23,6 +23,7 @@ Silakan klik tulisan download di bawah ini :
 
 ---
 *Catatan:* 
+
 *- Game ini hanya hiburan semata, jangan menjadikan sebagai tempat matapencaharian.*
 
 *- Hati-hati dengan channel Palsu yang mengatasnamakan samudra pro.*
